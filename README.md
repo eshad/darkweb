@@ -9,7 +9,7 @@ Most Valuable Service: [Hire Masters To Guide You From Your enemies, and Know Ho
 
 
 http://2pr6lggxdjzj4ze5.onion/chat_room/
-
+(Open < 10 Hours In A Day!)
 
 ###############
 Dark Scandals - Real blackmail
