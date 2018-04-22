@@ -14,10 +14,10 @@ http://2pr6lggxdjzj4ze5.onion/chat_room/
 ###############
 </br>
 Dark Scandals - Real blackmail</br>
-    vefqdlcknb2npgk6.onion</br>
+   *** http://vefqdlcknb2npgk6.onion</br>
 Rent A Hacker</br>
-    2ogmrlfzdthnwkez.onion</br>
+    ***http://2ogmrlfzdthnwkez.onion</br>
 USA Citizenship - Become a citizen of the USA today</br>
-    xfnwyig7olypdq5r.onion</br>
+    ***http://xfnwyig7olypdq5r.onion</br>
 Black Mesa Mafia</br>
-    4limjlssg7qdaweh.onion</br>
+    ***http://4limjlssg7qdaweh.onion</br>
